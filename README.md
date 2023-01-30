@@ -2,7 +2,6 @@
 
 混沌之道，道场。
 
-![](https://github.com/NickleHuang/bx-hundun-study/blob/main/img/%E6%B7%B7%E6%B2%8C%E5%AD%A6%E5%A0%82-new.png)
 
 ## 录播描述（没有跟上直播的看这里，新来的看这里！！！【 买之前的课都是录播，请按期下载，然后通过微信绑定，并输入激活码！！！！！！！！！ 】）
 
